@@ -31,7 +31,7 @@ Highly motivated and resilient professional with a strong foundation in translat
 
 * **LinkedIn:** [https://www.linkedin.com/in/anthony-maraka/]
 * **Email:** [marakaanthony20@gmail.com]
-* **Location:** Based in Kenya 🇰🇪
+* **Location:** Based in Kakuma-Kenya
 
 ---
 
